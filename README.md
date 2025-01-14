@@ -1,4 +1,7 @@
-## Hi there 👋
+## Moscow, 23 yo, she/her
+## I'm just starting learning
+## Please be nice to me ✨
+
 
 <!--
 **lantan9/lantan9** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

@@ -1,4 +1,4 @@
-## Moscow, 23 yo, she/her
+## Moscow, 23 yo
 ## I'm just starting learning
 ## Please be nice to me ✨
 
